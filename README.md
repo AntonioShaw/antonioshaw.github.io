@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maurician
+- 👋 Hi, I’m Antonio
 - 👀 I’m interested in digital marketing, pop culture, video games, and coding.
 - 🌱 I’m currently learning coding at DigitalCrafts.
 - 💞️ I’m looking to collaborate on any project that will help develop my coding skills.
