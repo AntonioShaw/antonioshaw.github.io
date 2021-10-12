@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/antonio-s-98a3a639/](https://www.linkedin.com/in/antonio-s-98a3a639/)
 
-- ⚡ Fun fact **One of my favorite pastimes is brutalizing my opponents in a game of full-contact scrabble.**
+- ⚡ Fun fact **One of my favorite pastimes is brutalizing my opponents in a game of full-contact Scrabble.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
